@@ -1,1 +1,1 @@
-My water bottle is empty. 
+My water bottle is empty.
